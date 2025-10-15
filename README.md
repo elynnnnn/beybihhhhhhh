@@ -1,2 +1,2 @@
-# beybihhhhhhh
-bapakku 2
+# kumpulan pertemuan ekskulo programming 
+kucing gedek
